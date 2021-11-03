@@ -1,1 +1,1 @@
-# Say-sal-G-r-nt-leme-D-nem-devi-1
+# Sayisal-Goruntu-Isleme-Donem-Odevi-1
